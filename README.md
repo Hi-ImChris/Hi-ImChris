@@ -8,4 +8,3 @@
 - 📫 How to reach me: sus.wtf - on Discord.
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: I like turtles.
--->
